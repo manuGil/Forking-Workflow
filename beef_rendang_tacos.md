@@ -1,5 +1,4 @@
-1. Blend young ginger, shallots, galangal, lemongrass and chili paste until 
-smooth.
+1. Blend young ginger, shallots, galangal, lemongrass and chili paste until smooth.
 2. Heat Seri Murni Pure Vegetable Cooking Oil in a wok and add blended spice paste. 
 3. Stir fry until aromatic.
 4. Add minced beef and cook for 1 minute.
